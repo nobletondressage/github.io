@@ -7,7 +7,7 @@ Horses for sale and lease
 - [Politically Correct (Carter)](https://www.youtube.com/watch?v=G7iF3b9kshU)
   - Politically Correct aka "Carter" is a 12 yr old, 17 hand KWPN cross gelding, schooling PSG. Carter is the consummate athlete. He had a successful career as an event horse up to Preliminary before he made the career change to dressage. Carter is incredibly talented, with three very impressive gaits. His flying changes are big and expressive and the extended gaits are a highlight. Carter is light off the leg and soft in the contact in either the snaffle or         double. He would make a super upper - level horse for a capable amateur or young rider. 
 
-- [Wolkenlady (Bella) - SOLD)](https://www.youtube.com/watch?v=sYHUFZ0O3jc)
+- (Wolkenlady (Bella) - SOLD))[https://www.youtube.com/watch?v=sYHUFZ0O3jc)]
   -    Wolkenlady (aka "Bella") is a 15.3, 2010 Hanoverian mare by Wolkenglanz out of a Der Lord (DeNiro) mare. Bella was recently shown third level for the first time, and won all four of her classes with excellent scores! She also has consistently good show scores with her amateur owner at training through second level. Bella's greatest attribute is her bravery!! She gives a lot of confidence to rider and is totally trustworthy in new situations. We use her as the lead horse for young horses on their very first hack, and she is totally dependable. Bella has good, clean changes and lovely halfpasses. Halfsteps and passage have been started, and she shows a natural ability for both. She is extremely easy in the connection and naturally forward. She has never been lame, and has some recent, excellent radiographs that can be made available to interested buyers.
 
  - (I-Sealarda (Seala) - SOLD)[https://www.youtube.com/watch?v=jfOFxp-Q9as]
