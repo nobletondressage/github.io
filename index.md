@@ -1,10 +1,12 @@
 ## Nobleton Dressage
 
-You can use the [editor on GitHub](https://github.com/nobletondressage/github.io/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Horses for sale and lease
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+### Previously Sold Horses
 
-### Markdown
+-Politically Correct (Carter)
+  Policically Correct aka "Carter" is a 12 yr old, 17 hand KWPN cross gelding, schooling PSG. Carter is the consummate athlete. He had a successful career as   an event horse up to Preliminary before he made the career change to dressage. Carter is incredibly talented, with three very impressive gaits. His flying   changes are big and expressive and the extended gaits are a highlight. Carter is light off the leg and soft in the contact in either the snaffle or           double. He would make a super upper - level horse for a capable amateur or young rider.
+
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
